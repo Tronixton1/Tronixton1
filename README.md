@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning the smart money concept 
 - 💞️ I’m looking to collaborate on someone who can create WhatsApp mods
 - 📫 How to reach me +263789675236
+https://record.binary.com/_Mxrjb7udl0q6tyDIijdDK2Nd7ZgqdRLk/1/
 
 
 <!---
